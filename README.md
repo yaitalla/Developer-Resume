@@ -1,1 +1,1 @@
-https://yaitalla.github.io/Developer-Resume/
+https://yaitalla.github.io/Resume/
